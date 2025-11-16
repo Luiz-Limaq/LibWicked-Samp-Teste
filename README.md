@@ -1,0 +1,1 @@
+# LibWicked-Samp-Teste
